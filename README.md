@@ -1,0 +1,2 @@
+Software Engineer 🖥️ | Code Enthusiast 👨‍💻 | Tech Explorer 🌍
+I code, I debug, I repeat. 🚀 From AWS to mobile apps, frontend to security – I'm your go-to tech Swiss Army knife! 🔧 Always up for a challenge, learning new things, and making the digital world a little more awesome one line of code at a time. 😎
